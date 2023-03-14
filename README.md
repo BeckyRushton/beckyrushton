@@ -5,11 +5,17 @@ I'm currently on an intensive 12-week course with _nology to become a junior ful
 When I'm not coding and becoming a general tech girlboss #womeninstem I am...
 
 🧶 Crocheting something warm 
+
 🚶🏼‍♀️ Walking somewhere pretty
+
 🐈‍⬛ Cuddling my cat
+
 ☕ Drinking a giant cup of tea
+
 🏘️ Designing houses on The Sims
+
 🎥 Watching tv shows on repeat
+
 
 My strengths are:
 - Beautifully designed and executed websites in line with BEM and structural standards
